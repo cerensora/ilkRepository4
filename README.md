@@ -1,0 +1,3 @@
+# baslik
+
+ALLAHIM NOLUR
